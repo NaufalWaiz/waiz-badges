@@ -1,0 +1,1 @@
+ini adalag kode javascript
